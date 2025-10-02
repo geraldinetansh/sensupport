@@ -1,0 +1,1 @@
+The SEN Support Chatbot is a teacher-friendly digital resource designed to give you immediate, practical guidance on supporting students with diverse learning needs. It consolidates key background knowledge, observation tools, strategies, and school processes into one accessible tool.
